@@ -1,0 +1,2 @@
+- [醤油](https://www.kikkoman.co.jp/kikkoman/namasyouyu/index.html)
+- [カレールー](https://www.sbfoods.co.jp/golden/)
